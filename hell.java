@@ -1,2 +1,3 @@
 Hey 
-How are
+How arei
+Yes, I am doing good 
